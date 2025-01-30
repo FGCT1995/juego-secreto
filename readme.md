@@ -18,4 +18,4 @@
 
 -GRACIAS POR JUGAR.
 
-https://cdn1.gnarususercontent.com.br/6/409216/ff043987-239b-4661-bdb1-7f4ca6092c48.png
+![Image](https://github.com/user-attachments/assets/d5a574c2-f2cf-4b82-9ac1-abb8b7c00fd7)

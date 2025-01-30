@@ -17,3 +17,5 @@
 ![Image](https://github.com/user-attachments/assets/32d5bcbb-8a2a-416e-ad58-8843b952865f)
 
 -GRACIAS POR JUGAR.
+
+https://cdn1.gnarususercontent.com.br/6/409216/ff043987-239b-4661-bdb1-7f4ca6092c48.png
